@@ -2,13 +2,15 @@
 Meu nome é Jeniffer
 
 - Estou estudando na Alura
-- Estou desenvolvendo a linguagem JavaScript
+- Estou denvolvendo a linguagem JavaScript
 - Utilizo este espaço para compartilhamento e organização dos meus projetos desenvolvidos
 
 ## Você pode entrar em contato comigo📞
-
 jeni20017@gmail.com
 
+instagram🤳
 @jeny.8.1.1.9.4
 
-!.[].(https://media.tenor.com/Koh_iPrEAkoAAAAM/j2-jared-padalecki.gif)
+!.[].(![winchester-spn](https://github.com/user-attachments/assets/1cf44cec-e723-4808-ba91-80ed48b45ef5)
+
+)
